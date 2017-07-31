@@ -15,3 +15,4 @@ Tanuki's Debut Album
 
 - juicy
 
+- nothin but automation
