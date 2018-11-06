@@ -16,3 +16,5 @@ Tanuki's Debut Album
 - juicy - [video](https://www.youtube.com/watch?v=9krAQzN6tbc&t)
 
 - nothin but automation - [video](https://www.youtube.com/watch?v=xRTRKDbLVYg)
+
+- merkle eyes
