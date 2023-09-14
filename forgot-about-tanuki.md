@@ -65,7 +65,7 @@ I'm gonna mine you until this airdropped, heroin, rainfall stops
 And when it all came thru who was left but the chains of the IBC gang  
 With a sovereign heart, each doing its part, you know the interop thang  
 So from here on out, we sing a cosmos tune  
-new highs today, ATOM top ten soon,  
+new highs today, ATOM 2.0 soon,
 and we're still focused enough to ship a cosmos hub thatll take us to the moon  
   
 Cosmos IBC, hotter than a fat DeFi treasury  
@@ -73,7 +73,7 @@ A gang of interchain frens with an airdrop cup
 when new chains stand up to cement our legacy,  
 Cosmosmohamed Bitcoin Jaesustein, sorry Doc but we been crazy  
 we decentralized the whole game, see?   
-and you're not gonna make it, Gary (Howey?)  
+and you're not gonna make it, Samani
   
 Nowadays every token wanna talk like they got some usecase  
 But nothing shows up,   
@@ -82,12 +82,12 @@ That's just a bunch of gibberish
 And motherfuckers act like Cosmos isn't great  
   
 If it was up to me, you motherfuckers would stop speculating  
-With your alpha leak lookin to me, like you want something free  
+With your alpha leak lookin to me, like you some VC
 but you know all I care about is local currency  
 now that we got some more company  
 Everybody want IBC, to connect seamlessly  
 cuz it's all about sovereignty  
-And I'm from the parks of Toronto  
+celebrate in the hills of Medellin
   
 I told 'em all, all them little blockchain  
 Who you think helped mold 'em all  

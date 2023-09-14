@@ -13,7 +13,7 @@ And every day he gets a way another day
   
 I met a man from New York City  
 He spoke of sigs, hashes and chains  
-Seemed like a good man, driven by the freedom  
+Seemed like a good man, driven by a vision
 to fulfill satoshi's way
   
 Its a scam train!  
