@@ -11,5 +11,6 @@ Tanuki's Debut Album
 1. Juicy - [lyrics](juicy.md), [video](https://www.youtube.com/watch?v=9krAQzN6tbc&t)
 1. Nuthin but Automation - [lyrics](automation.md), [video](https://www.youtube.com/watch?v=xRTRKDbLVYg)
 1. Forgot About Tanuki - [lyrics](forgot-about-tanuki.md), [video](https://www.youtube.com/watch?v=RhmvcGUDLpQ&t=14085s)
+1. Skandalouz - [lyrics](skandalouz.md)
 
 
