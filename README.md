@@ -12,5 +12,5 @@ Tanuki's Debut Album
 1. Nuthin but Automation - [lyrics](automation.md), [video](https://www.youtube.com/watch?v=xRTRKDbLVYg)
 1. Forgot About Tanuki - [lyrics](forgot-about-tanuki.md), [video](https://www.youtube.com/watch?v=RhmvcGUDLpQ&t=14085s)
 1. Skandalouz - [lyrics](skandalouz.md)
-
+1. What Its Like - [lyrics](what-its-like.md)
 
